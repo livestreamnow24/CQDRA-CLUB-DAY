@@ -1,0 +1,1 @@
+# CQDRA-CLUB-DAY
